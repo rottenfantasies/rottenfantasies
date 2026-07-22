@@ -1,4 +1,4 @@
-## YAYYYY II FIGURED IT OUT this is gonna look sooo good soon i prommy
+## this is stil a w ip im lazy BUT DONT INT WITH ME IF UR UNDER 14 i odnt want to talk with kids
 
 <!--
 **rottenfantasies/rottenfantasies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
